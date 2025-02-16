@@ -1,1 +1,1 @@
-# strategies-of-yhuhas
+# strategies-of-vyuhas
